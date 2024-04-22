@@ -27,6 +27,6 @@ What I Do?
     
 What Industries do I cover?
 
-1. HR
-2. Technology
-3. Publishing
+1. Lawlessness
+2. Bilge Water Gravy
+3. Buried Treasure
